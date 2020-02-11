@@ -7,9 +7,17 @@ Reasons:
  - Moderate corporate taxes: no more than 25%, which is lower than in most of all EU countries [reference](https://en.wikipedia.org/wiki/List_of_countries_by_tax_rates)
 
  Entry model - Direct franchising model  
- we (as a Four Seasons company) provide:
+ We (as a Four Seasons company) provide:
  - Know-how (all supportive information, for ex. the way of hiring and assesing staff)
+ - Support in hotel construction & equipment 
+ - Design project for internal space
  - Logo and brandbook
  - Marketing support
 
- 
+
+ We (as a Four Seasons company) request:
+- Historical builiding (at least building in the cultural city center)
+- Perfect building condition
+
+
+
